@@ -1,0 +1,2 @@
+# destiny
+pursuit of knowledge
